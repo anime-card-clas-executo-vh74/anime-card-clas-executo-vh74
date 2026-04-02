@@ -1,4 +1,4 @@
-
+steal a brainrot smrt Scripts: no-cd & god is your go-to resource for steal a brainrot domination. Featuring no-cd and god, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
